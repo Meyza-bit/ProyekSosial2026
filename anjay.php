@@ -1,1 +1,1 @@
-anjay cukurukukk
+anjay cukurukukk kiw kiw ayu
